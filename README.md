@@ -1,2 +1,0 @@
-# bozong.github.io
-bolg
